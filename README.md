@@ -1,1 +1,0 @@
-# votacarota.github.io
